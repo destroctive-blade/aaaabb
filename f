@@ -1,3 +1,0 @@
-qozdhzofh
-jawek bzazel
-
